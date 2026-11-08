@@ -19,8 +19,6 @@ $\color{#c92112}{\textsf{I'm generally pretty friendly, but I can be awkward. Re
   <summary>$\color{#c92112}{\textsf{[click me] ⠀DO NOT INTERACT.}}$</summary>
 
   ![x](https://64.media.tumblr.com/48e63740e76ced8bec0d73aca9091cf0/0267cbb62ed7e3e6-60/s75x75_c1/f145384545354c55426c3ccbfb05dcc35b453fed.gifv) $\color{#c92112}{\textsf{if you do/are these things, you will be hidden.}}$
-  
-<sub> $\color{#c92112}{\textsf{there are very little exceptions; and yes, i do hide "doubles"}}$ </sub>
 
   $\color{#8c170d}{\textsf{✶ you overuse the following terms:    yaoi, yuri, freaky/freak}}$
   
@@ -29,6 +27,8 @@ $\color{#c92112}{\textsf{I'm generally pretty friendly, but I can be awkward. Re
   $\color{#8c170d}{\textsf{✶ you are the following -phobics/-cists, or associate with them:    lgbtqphobic, racist, xenophobic, misogynist, ableist}}$
 
   $\color{#8c170d}{\textsf{✶ don't be weird. literally just interact and talk to me normally!}}$
+
+  $\color{#c92112}{\textsf{there are very little exceptions; and yes, i do hide "doubles"}}$ ![x](https://64.media.tumblr.com/77fbf4a22621e61ee04627cecfc47ac4/a7eb681006342924-66/s75x75_c1/7b1a92193211371be565a2624ba1309bdddb5665.gif)
 
 </details>
 
