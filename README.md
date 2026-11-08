@@ -18,14 +18,17 @@ $\color{#c92112}{\textsf{Hey. It's me. It's Ellity. Ask me anything!}}$
   
 <sub> $\color{#c92112}{\textsf{there are very little exceptions; and yes, i do hide "doubles"}}$ </sub>
 
-  ✶ you overuse the following terms:    yaoi, yuri, freaky/freak
+  $\color{#8c170d}{\textsf{✶ you overuse the following terms:    yaoi, yuri, freaky/freak}}$
   
-  ✶ you use the following terms, or align with them:    femboy, lesboy, radqueer
+  $\color{#8c170d}{\textsf{✶ you use the following terms, or align with them:    femboy, lesboy, radqueer}}$
 
-  ✶ you are the following -phobics/-cists, or associate with them:    lgbtqphobic, racist, xenophobic, misogynist, ableist, etc - this should be obvious
+  $\color{#8c170d}{\textsf{✶ you are the following -phobics/-cists, or associate with them:    lgbtqphobic, racist, xenophobic, misogynist, ableist, etc - this should be obvious}}$
+
+  $\color{#8c170d}{\textsf{✶ don't be weird. literally just interact & talk to me normally!}}$
 
 </details>
 
+$\color{#c92112}{\textsf{Please don't try to talk to me in public chat - whispers are better! Contact me there if you'd like to chat, or ask questions! I'm generally pretty friendly, but I can be awkward. Regardless, I always appreciate people who interact with me. <3}}$
 
 ![x](https://64.media.tumblr.com/f9110232684d83891c09d479f195fd23/58241b304e2fe519-2f/s1280x1920/d8743825b3d996c6f7184db6b88a19ea5fdae310.pnj)
 
